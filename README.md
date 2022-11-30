@@ -1,4 +1,4 @@
-### Olá!! me chamo Felipe Cavalcante de Oliveira 👋
+### Olá!! Me chamo Felipe Cavalcante de Oliveira 👋
 
 
 - 🔭 Atualmente estou trabalhando na rede de Supermercados JaúServe, no depart de TI ...
